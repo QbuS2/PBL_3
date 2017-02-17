@@ -64,3 +64,4 @@ Problem-Based Learning (PBL) (VYKHOR OLEKSANDR)
 
 https://www.themedicportal.com/application-guide/choosing-a-medical-school/pbl-courses/
 [Problem based learning modulesł](http://www.iop.org/education/higher_education/stem/problem-based/page_55225.html) (Bohdan Skrypka)
+[Materiały PBL](http://spskalmierzyce.noweskalmierzyce.pl/sites/spskalmierzyce.noweskalmierzyce.pl/files/zdjecia/problem-based-learning.pdf)(Jakub Samek)
